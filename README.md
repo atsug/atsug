@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @atsug
+- 👀 I'm interested in learning programming
+- 🌱 I'm currently learning everything and more
+- 📫 How to reach me: don't reach me
